@@ -1,4 +1,4 @@
-![1](https://64.media.tumblr.com/b978178035146ef56499162cc38c4aec/402c21f033d24147-95/s2048x3072/a7cf00efdd91ca7f977594a88451c4d30ccc9cf2.pnj)
+![1](https://64.media.tumblr.com/51499a429d31f7f8186596154627eb61/fecefee341b7fe4d-54/s2048x3072/732570d98012caf47a111a579bfc232a8355b58e.pnj)
 
              
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=40685E&center=true&width=435&lines=MOTHERS+%231+SPECIAL+BOY+JARED+!!!!1!;JARED+LOVES+HIS+FRIENDS%2C+HIS+FAMILY%2C;AND+YOU!+%E2%80%A2%3A%5D" alt="Typing SVG" /></a>
