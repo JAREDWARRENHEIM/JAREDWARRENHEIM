@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=2000&color=40685E&center=true&width=435&lines=MOTHERS+%231+SPECIAL+BOY+JARED+!!!1!;JARED+LOVES+HIS+FRIENDS+%26%26+FAMILY.;AND+HE+LOVES+YOU+TOO.+%E2%80%A2%3A)(https://git.io/typing-svg)
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=2000&color=40685E&center=true&width=435&lines=MOTHERS+%231+SPECIAL+BOY+JARED+!!!1!;JARED+LOVES+HIS+FRIENDS+%26%26+FAMILY.;AND+HE+LOVES+YOU+TOO.+%E2%80%A2%3A)
